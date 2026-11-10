@@ -1,3 +1,3 @@
 # Tuần 06
 
-Tuần này giảng viên không giao bài tập.
+Tuần này giảng viên không giao bài tập
